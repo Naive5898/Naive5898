@@ -73,7 +73,7 @@
 
 
 ## 🎒 Образование
-https://github.com/Naive5898/Naive5898/issues/1#issue-5447968976
+<img width="906" height="1280" alt="Image" src="https://github.com/user-attachments/assets/b5e98b6e-33b1-43ac-8d18-d5c12ce62301" />
 
 
 <br>
